@@ -1,3 +1,3 @@
 # MD5-Hash
 𝙲𝚁𝙰𝙲𝙺𝙴𝚁 𝙷𝙰𝚂𝙷 𝙵𝙸𝙻𝙴
-For Use YOu Should Download Or Create Password List And Enjoy That!
+ | 𝙵𝚘𝚛 𝚄𝚜𝚎 𝚈𝚘𝚞 𝚂𝚑𝚘𝚞𝚕𝚍 𝙳𝚘𝚠𝚗𝚕𝚘𝚊𝚍 𝙾𝚛 𝙲𝚛𝚎𝚊𝚝𝚎 𝙿𝚊𝚜𝚜𝚠𝚘𝚛𝚍 𝙻𝚒𝚜𝚝 𝙰𝚗𝚍 𝙴𝚗𝚓𝚘𝚢 𝚃𝚑𝚊𝚝!
